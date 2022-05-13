@@ -20,6 +20,7 @@
   3. [恩妮の软萌shop](https://shop107863438.taobao.com/)
   4. [玩未旗舰店](https://wanweinz.tmall.com/)
   5. [猫愿工作室](https://catwish.taobao.com/shop/)
+  5. [香蕉物贩](https://shop72635383.m.taobao.com)
 
 ## 包
   1. [栗の茶话会Tea party](https://teaparty.taobao.com/)
